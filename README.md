@@ -1,0 +1,2 @@
+- 👋 Hi, I’m @theBluish
+- I'm just chillin
